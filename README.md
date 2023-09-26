@@ -1,0 +1,1 @@
+# sony_xperia_10_IV_Nethunter_kernel
